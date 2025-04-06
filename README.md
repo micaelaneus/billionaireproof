@@ -7,7 +7,7 @@ All published works created under the name "Billionaire-proof Your Life" (or clo
 
 ## Guidelines for BPYL Workshops
 
-All events are free to attend, but requests for donations to cover costs directly related to hosting the event (hosting or venue fees, snacks, etc.) may be made. All events must strive to honor the credo No One Turned Away For Lack of Funds (NOTAF) in a sincere and forthright manner.
+All events are free to attend, but requests for donations to cover costs directly related to hosting the event (hosting or venue fees, snacks, etc.) may be made. All events must strive to honor the credo No One Turned Away For Lack of Funds (NOTAFOF) in a sincere and forthright manner.
 
 BPYL doesn't raise money for charities at online or in-person events. No political endorsements given. Proper effort to either avoid or openly declare any conflicts-of-interest must be shown.
 
